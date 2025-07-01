@@ -1,1 +1,1 @@
-The sun is a star, the central body of our solar system, responsible for providing Earth with light and heat. It is a massive, nearly spherical ball of hot plasma, powered by nuclear fusion reactions in its core.
+The sun is a star, the central body of our solar system, responsible for providing Earth with light and heat.
